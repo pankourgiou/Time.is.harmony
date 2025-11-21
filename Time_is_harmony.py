@@ -1,1 +1,1 @@
-print("Time is harmony")
+print("Sorrow to burn trascend the pain took my wheel and turned it over enter the door trascend the pain sorrow to burn  helped me to find courage to change Oasis took my wheel and turned it over powerful the door was wide open black out")
